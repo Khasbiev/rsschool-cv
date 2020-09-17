@@ -4,7 +4,7 @@
 
 * Phone number: +79214001880
 
-* Mail: Khasbiich@yandex.ru
+* E-mail: Khasbiich@yandex.ru
 * Telegram: khasbiev
 
 ##### Summary
